@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **duranthomas95@gmail.com**
 
-- 📄 Know about my experiences [https://duran-thomas.notion.site/View-My-Works-e27a5ad3d17841c4a89b83050a495b43?pvs=4](https://duran-thomas.notion.site/View-My-Works-e27a5ad3d17841c4a89b83050a495b43?pvs=4)
+- 📄 View Works That I've Done [Click Here](https://duran-thomas.notion.site/View-My-Works-e27a5ad3d17841c4a89b83050a495b43?pvs=4)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
