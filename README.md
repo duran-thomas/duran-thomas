@@ -3,8 +3,6 @@
 
 - 📫 How to reach me **duranthomas95@gmail.com**
 
-- 📄 View Works That I've Done [Click Here](https://duran-thomas.notion.site/View-My-Works-e27a5ad3d17841c4a89b83050a495b43?pvs=4)
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://www.linkedin.com/in/duran-thomas-20a550135" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="www.linkedin.com/in/duran-thomas-20a550135" height="30" width="40" /></a>
